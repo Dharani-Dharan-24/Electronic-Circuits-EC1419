@@ -7,7 +7,17 @@
 
 
 ## tabulation
+<img width="1139" height="1600" alt="image" src="https://github.com/user-attachments/assets/442b7ee8-7cdb-44b1-a019-a86344cefae0" />
+
 
 ## attach graph sheet
+<img width="937" height="1600" alt="image" src="https://github.com/user-attachments/assets/9c323bb5-d86e-48f8-89a2-d2739c49b101" />
+<img width="1600" height="1490" alt="image" src="https://github.com/user-attachments/assets/994d8d70-9b80-4b03-b0d2-50ad03958cd9" />
+
 
 ## result
+<img width="1600" height="870" alt="image" src="https://github.com/user-attachments/assets/258b8eb8-d273-4b3f-8ed7-80878924b812" />
+
+
+## Mark Splitup
+<img width="1280" height="960" alt="WhatsApp Image 2026-09-23 at 7 57 07 AM" src="https://github.com/user-attachments/assets/fc2b6f15-9eb7-4643-b97b-a621693e693d" />
