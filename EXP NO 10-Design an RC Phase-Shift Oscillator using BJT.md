@@ -9,9 +9,19 @@
 
 
 ## tabulation
+<img width="1600" height="1199" alt="image" src="https://github.com/user-attachments/assets/1f7864d0-1d4a-4c75-829c-941989a41737" />
+
 
 ## output graph sheet
+<img width="1600" height="1461" alt="image" src="https://github.com/user-attachments/assets/0a6dbc8c-12e6-4003-b418-760d4a6e3ab8" />
+
 
 ## calculation
+<img width="1600" height="1410" alt="image" src="https://github.com/user-attachments/assets/2254db43-0e52-441e-9e54-64bbda76f185" />
 
 ## result
+<img width="1600" height="1010" alt="image" src="https://github.com/user-attachments/assets/59d34a53-ee50-4393-8c6c-61c73b91749e" />
+
+
+## Mark Splitup
+<img width="1280" height="960" alt="WhatsApp Image 2026-09-23 at 7 57 09 AM" src="https://github.com/user-attachments/assets/63e36438-f22d-46c7-bdb1-e650614f344f" />
