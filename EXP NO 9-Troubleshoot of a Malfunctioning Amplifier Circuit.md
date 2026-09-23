@@ -8,7 +8,13 @@
 
 
 ## Tabulation
+<img width="1017" height="1600" alt="image" src="https://github.com/user-attachments/assets/3d3f3457-5715-4fe6-84d3-644517da2370" />
 
 ## attach semilog graph
+<img width="1600" height="999" alt="image" src="https://github.com/user-attachments/assets/a60700b4-fed2-428a-aa91-bdd115060599" />
 
 ## result
+<img width="1600" height="1056" alt="image" src="https://github.com/user-attachments/assets/0c00ee78-e141-43db-b645-a6783f2eca74" />
+
+## Mark Splitup
+<img width="1280" height="960" alt="WhatsApp Image 2026-09-23 at 7 57 07 AM" src="https://github.com/user-attachments/assets/777d466a-7255-43a5-9f99-e325e7daca3e" />
